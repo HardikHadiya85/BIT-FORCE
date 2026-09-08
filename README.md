@@ -1,3 +1,3 @@
 # BIT-FORCE
-
-Hackathon 2026 
+         I am hardik hadiya 
+Hackathon 2026   
